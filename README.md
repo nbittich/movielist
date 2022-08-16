@@ -22,3 +22,7 @@
 - New York 1997
 - 1984
 - office space
+- shaun of the dead
+- last pub before the end of the world
+- evil dead 2
+- Hot fuzz
