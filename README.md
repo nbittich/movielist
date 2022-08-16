@@ -11,4 +11,10 @@
 - oblivion
 - Groundhog day 
 - demolition man
-
+- the grey
+- man from earth
+- gattaca
+- Goodfellas
+- scarface
+- shining
+- Dr sleep
