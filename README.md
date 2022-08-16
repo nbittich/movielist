@@ -7,3 +7,7 @@
 - Cube
 - Blair witch 
 - Dark city
+- edge of tomorrow
+- oblivion
+- Groundhog day 
+
