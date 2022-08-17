@@ -26,3 +26,10 @@
 - last pub before the end of the world
 - evil dead 2
 - Hot fuzz
+- dog soldiers
+- bloodsport
+- drunken master 2
+- rush hour
+- project a (matin des mers de chine)
+- Robocop
+- armour of god 2
