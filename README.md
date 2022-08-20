@@ -35,3 +35,5 @@
 - armour of god 2
 - l'antre de la folie
 - prince of darkness
+- tremors
+- blade
