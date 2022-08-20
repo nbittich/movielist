@@ -30,7 +30,7 @@
 - bloodsport
 - drunken master 2
 - rush hour
-- project a (matin des mers de chine)
+- project a (marin des mers de chine)
 - Robocop
 - armour of god 2
 - l'antre de la folie
