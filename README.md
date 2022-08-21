@@ -37,3 +37,5 @@
 - prince of darkness
 - tremors
 - blade
+- district 9
+- chappie
