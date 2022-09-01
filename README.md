@@ -6,6 +6,7 @@
 - The thing
 - Cube
 - Blair witch 
+- long kiss goodnight
 - Dark city
 - edge of tomorrow
 - oblivion
