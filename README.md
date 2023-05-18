@@ -47,7 +47,7 @@
 - pi
 - tonnerre sous les tropiques
 - long kiss goodnight
-- gattaca
+- arcane (serie)
 - dungeons and dragons 2023
 
 
