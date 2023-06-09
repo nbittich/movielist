@@ -8,6 +8,7 @@
 - Cube
 - Blair witch 
 - long kiss goodnight
+- hooligans
 - Dark city
 - edge of tomorrow
 - oblivion
