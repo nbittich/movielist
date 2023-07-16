@@ -1,3 +1,10 @@
+# worth to watch next season
+
+- severance
+- the boyz
+- devil's hour
+
+
 # movielist
 
 - half baked
